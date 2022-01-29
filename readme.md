@@ -1,0 +1,1 @@
+# Verstka from PSD + slider
